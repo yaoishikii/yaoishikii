@@ -19,7 +19,7 @@
 
 ## LINKS
 
-- ｡𖦹°‧ https://rentry.co/yskhh
+- ｡𖦹°‧ https://rentry.co/yaoishikii
 
 - **do not stalk me, just talk to me like a normal PERSON!!!!!!!!!!**
 
